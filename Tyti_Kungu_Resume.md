@@ -1,5 +1,5 @@
 # Tyti Kungu
-#### Address: 3089 Clover Road, Concord, NC, 28027 E-mail:nsungu.kungu@gmail.com, Tel: 704-241-9614
+#### Address: 15033 SE 15th St, Bellevue, WA, 98007 E-mail:tyti_kungu@hotmail.com, Tel: 704-241-9614
 
 ## Experiences
 ---
